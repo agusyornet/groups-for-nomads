@@ -294,57 +294,16 @@ Africa
 ![Whatsapp](icons/whatsapp.svg) [Patagonia Bariloche & More](https://chat.whatsapp.com/Cr4CdA6dScu7rblxsQFBHN)
 
 ### Buenos Aires
+
+#### Making Friends/Meetups
+
 ![Linktree](icons/linktree.svg) [Linktree for Buenos Aires "BA Digital Nomads"](https://linktr.ee/BADigitalNomads)
 
-![Whatsapp](icons/whatsapp.svg) [BA Medical & Health Group](https://bit.ly/3WqGrVz)
-
-![Whatsapp](icons/whatsapp.svg) [BA Medical/Health Marketplace](https://bit.ly/4blRsLO)
+![[Whatsapp](icons/whatsapp.svg) [BA Digital Nomads IV](https://chat.whatsapp.com/Ep0E21943MkFqNq2koeKm7)
 
 ![Telegram](icons/telegram.svg) [MundoLingo Buenos Aires](https://t.me/ML_Argentina/109948)
 
-![Whatsapp](icons/whatsapp.svg) [Pool Party People in BA](https://chat.whatsapp.com/Jaff3CuLzC8HclvIfLxIHI)
-
-![Whatsapp](icons/whatsapp.svg) [Photography in BA)](https://chat.whatsapp.com/DdO2jpp8EibL8lD2TD1hb7)
-
-![Whatsapp](icons/whatsapp.svg) [BA Expat Photographers](https://chat.whatsapp.com/GvAHNO9ab030uHQNBIMcBK)
-
-![Whatsapp](icons/whatsapp.svg) [BA Digital Nomads Jobs](https://chat.whatsapp.com/LLhOpx9HIMF5tHyssyWly6)
-
-![Whatsapp](icons/whatsapp.svg) [Money Exchange (No Brokers allowed)](https://chat.whatsapp.com/LQb6yakPB559A5EaVlxtQq)
-
-![Whatsapp](icons/whatsapp.svg) [Mercado (Buy / Sell / Services)](https://chat.whatsapp.com/EHUnfslk1e7B3XHs3vP7Fl)
-
-![Whatsapp](icons/whatsapp.svg) [Legal & Accountant Advice](https://chat.whatsapp.com/Flc2pmIptqc180TkBKkRZO)
-
-![Whatsapp](icons/whatsapp.svg) [BA Board Game Lovers](https://chat.whatsapp.com/HEDW5WeL7IHJtAHiqEZbPV)
-
-![Whatsapp](icons/whatsapp.svg) [BA Event List ](https://chat.whatsapp.com/KA2X3VmDwyyKzhtiOPVJfn)
-
-![Whatsapp](icons/whatsapp.svg) [BA Sporties](https://chat.whatsapp.com/HrRwMGiP9u9EBFUPTnHmnE)
-
-![Whatsapp](icons/whatsapp.svg) [Sports & Health at Buenos Aires](https://chat.whatsapp.com/IL03K9SiHO2HkRD512NXII)
-
-![Whatsapp](icons/whatsapp.svg) [Palermo Nomad Coworking](https://chat.whatsapp.com/H7WW6lAQoz8KHPRtJOcMHY)
-
-![Whatsapp](icons/whatsapp.svg) [Asadito - asados in la Lucila](https://chat.whatsapp.com/EeWxMCMOtq0HFblAYNf1tw)
-
-![Whatsapp](icons/whatsapp.svg) [Nomad Artists](https://chat.whatsapp.com/CXMqgHWbmbXFSvcDLjhilx)
-
-![Whatsapp](icons/whatsapp.svg) [Pádel Beginners](https://chat.whatsapp.com/L7etY1Qjrh64WXL6spuLD9)
-
 ![Whatsapp](icons/whatsapp.svg) [Spanish painting & “culture” group](https://chat.whatsapp.com/HJCvpOZbgZm61ofO3whhZs)
-
-![Whatsapp](icons/whatsapp.svg) [Spanish Bar & Language group](https://chat.whatsapp.com/JJY3SknxwQK2Wiolqfmasv)
-
-![Whatsapp](icons/whatsapp.svg) [Outdoor Cinema Club](https://chat.whatsapp.com/DaBy9ClAEVvItYo7hlCZ0z)
-
-![Whatsapp](icons/whatsapp.svg) [Food Meetup - Argentina](https://chat.whatsapp.com/FSiTlVNx9ZvAyj7F1T6SoR)
-
-![Whatsapp](icons/whatsapp.svg) [Beer & Cheers](https://chat.whatsapp.com/EqnlBWOhzfHJ6CLsZI9l0r)
-
-![Whatsapp](icons/whatsapp.svg) [UNDER CLUB (dance, techno)](https://chat.whatsapp.com/DWYd7WuiKFMBdHn2EAT5fA)
-
-![Whatsapp](icons/whatsapp.svg) [Ping Pong Buenos Aires](https://chat.whatsapp.com/CR0VGPgIemQFjPABnFrXuB)
 
 ![Whatsapp](icons/whatsapp.svg) [Club Social](https://chat.whatsapp.com/G73RrbEtDs757rchINANqm)
 
@@ -355,6 +314,82 @@ Africa
 ![Whatsapp](icons/whatsapp.svg) [Mindful Nomads - Buenos Aires](https://chat.whatsapp.com/CLXfzyvdjM5KWNdN1RZayc)
 
 ![Whatsapp](icons/whatsapp.svg) [LGBT+ BA International](https://chat.whatsapp.com/JadJ6iCD3z6G5vKzuTi61J)
+
+![Whatsapp](icons/whatsapp.svg) [BA Event List ](https://chat.whatsapp.com/KA2X3VmDwyyKzhtiOPVJfn)
+
+![Whatsapp](icons/whatsapp.svg) [Spanish Bar & Language group](https://chat.whatsapp.com/JJY3SknxwQK2Wiolqfmasv)
+
+
+#### Activities
+
+![Whatsapp](icons/whatsapp.svg) [Nomads food adventures BA](https://bit.ly/4eUzxO5)
+
+![Whatsapp](icons/whatsapp.svg) [Food Meetup - Argentina](https://chat.whatsapp.com/FSiTlVNx9ZvAyj7F1T6SoR)
+
+![Whatsapp](icons/whatsapp.svg) [BA Sporties](https://chat.whatsapp.com/HrRwMGiP9u9EBFUPTnHmnE)
+
+![Whatsapp](icons/whatsapp.svg) [Pádel Beginners](https://chat.whatsapp.com/L7etY1Qjrh64WXL6spuLD9)
+
+![Whatsapp](icons/whatsapp.svg) [Sports & Health at Buenos Aires](https://chat.whatsapp.com/IL03K9SiHO2HkRD512NXII)
+
+![Whatsapp](icons/whatsapp.svg) [Asadito - asados in la Lucila](https://chat.whatsapp.com/EeWxMCMOtq0HFblAYNf1tw)
+
+![Whatsapp](icons/whatsapp.svg) [Ping Pong Buenos Aires](https://chat.whatsapp.com/CR0VGPgIemQFjPABnFrXuB)
+
+![Whatsapp](icons/whatsapp.svg) [Outdoor Cinema Club](https://chat.whatsapp.com/DaBy9ClAEVvItYo7hlCZ0z)
+
+![Whatsapp](icons/whatsapp.svg) [BA Board Game Lovers](https://chat.whatsapp.com/HEDW5WeL7IHJtAHiqEZbPV)
+
+![Whatsapp](icons/whatsapp.svg) [Pool Party People in BA](https://chat.whatsapp.com/Jaff3CuLzC8HclvIfLxIHI)
+
+![Whatsapp](icons/whatsapp.svg) [Palermo Nomad Coworking](https://chat.whatsapp.com/H7WW6lAQoz8KHPRtJOcMHY)
+
+![Whatsapp](icons/whatsapp.svg) [Nomad Artists](https://chat.whatsapp.com/CXMqgHWbmbXFSvcDLjhilx)
+
+
+#### Accommodation
+
+![Whatsapp](icons/whatsapp.svg) [BA digital nomads housing](https://chat.whatsapp.com/DZvh0gBEmKKAeL84lD7ZzY )
+
+![Whatsapp](icons/whatsapp.svg) [BA digital nomads renting](https://chat.whatsapp.com/HLNEOqnkLwZ2NFEj8Fu7ph)
+
+
+
+#### Buy/sell
+
+![Whatsapp](icons/whatsapp.svg) [Money Exchange (No Brokers allowed)](https://chat.whatsapp.com/LQb6yakPB559A5EaVlxtQq)
+
+![Whatsapp](icons/whatsapp.svg) [Mercado (Buy / Sell / Services)](https://chat.whatsapp.com/EHUnfslk1e7B3XHs3vP7Fl)
+
+#### Party
+
+![Whatsapp](icons/whatsapp.svg) [UNDER CLUB (dance, techno)](https://chat.whatsapp.com/DWYd7WuiKFMBdHn2EAT5fA)
+
+#### Help
+
+![Whatsapp](icons/whatsapp.svg) [BA Medical & Health Group](https://bit.ly/3WqGrVz)
+
+![Whatsapp](icons/whatsapp.svg) [BA Medical/Health Marketplace](https://bit.ly/4blRsLO)
+
+![Whatsapp](icons/whatsapp.svg) [Legal & Accountant Advice](https://chat.whatsapp.com/Flc2pmIptqc180TkBKkRZO)
+
+
+![Whatsapp](icons/whatsapp.svg) [Photography in BA)](https://chat.whatsapp.com/DdO2jpp8EibL8lD2TD1hb7)
+
+![Whatsapp](icons/whatsapp.svg) [BA Expat Photographers](https://chat.whatsapp.com/GvAHNO9ab030uHQNBIMcBK)
+
+![Whatsapp](icons/whatsapp.svg) [BA Digital Nomads Jobs](https://chat.whatsapp.com/LLhOpx9HIMF5tHyssyWly6)
+
+
+
+
+
+
+
+
+![Whatsapp](icons/whatsapp.svg) [Beer & Cheers](https://chat.whatsapp.com/EqnlBWOhzfHJ6CLsZI9l0r)
+
+
 
 ### Mendoza
 ![Whatsapp](icons/whatsapp.svg) [Hiking in Mendoza](https://chat.whatsapp.com/HXh8WYp3GTfGTgbOZu3a5v)
